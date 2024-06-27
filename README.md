@@ -1,2 +1,3 @@
 # Pesan-ketika-OnplayerConnect
-Jangan by byan dah
+Jangan by by an dah
+Credit lupa gw
